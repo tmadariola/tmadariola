@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tmadariola
+- 👋 Hi, My name is Tobi Madariola
 - I’m interested in whatever makes me more money
 - I’m currently learning so many things 
 - I’m looking to collaborate on many things 
